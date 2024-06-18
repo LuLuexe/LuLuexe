@@ -1,0 +1,7 @@
+- 👋 Hello, my name is Luiza! Living in SP-BR
+- 👀 I'm interested in game design, level design, systems, documentation, and other creative and funny things
+- 🌱 I'm currently learning Unreal Engine because I've already taught Unity
+- 💞️ I look to collaborate on prototyping and personal studies to enhance our creative minds with skills and tools
+- 📫 How to contact me: linkedin.com/in/luizadipietro
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm a vegetarian, catlady, versatile and curious, and I love shooting and simulation games in my free time
